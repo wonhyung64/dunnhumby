@@ -1,1 +1,1 @@
-### This is anonymous github for downloading ***DunnHumby:Origianl***.
+### This is anonymous github for downloading ***DunnHumby:Original***.
